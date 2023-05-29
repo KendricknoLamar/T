@@ -12,3 +12,4 @@
 ![235359573-5fea1158-9bde-425c-9e7e-5ffa881ce341](https://user-images.githubusercontent.com/130739491/236133928-75f53038-98bd-40ab-9117-97a6ed69c71c.png)
 ![kkkkk](https://github.com/KendricknoLamar/T/assets/130739491/0af1badd-31a4-4319-812f-87d7c07d3d53)
 ![cf8c9aac9e9bea7cb8806048c702a79](https://github.com/KendricknoLamar/T/assets/130739491/26dbd4b0-524b-4284-a442-8b19ff845956)
+![LGSFTI{ JL0_)NDP$RG BH](https://github.com/KendricknoLamar/T/assets/130739491/97d8aa29-a5f3-4bdd-9b1b-3faf2d92e6f3)
