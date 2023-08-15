@@ -18,3 +18,6 @@
 ![41a9e6ed39ab7b2bb2c5936f2999c52](https://github.com/KendricknoLamar/T/assets/130739491/a22a39d5-cf8a-4a3b-834a-0cee969e3a2c)
 ![71e85a5d81f03821f014c8149c2296a](https://github.com/KendricknoLamar/T/assets/130739491/17e8e411-5f90-4c7b-aba6-a59baf954bbf)
 ![967819810b3dd9c1faa118988c2663b](https://github.com/KendricknoLamar/T/assets/130739491/fd191d22-d820-4aec-b168-4cc2f08423da)
+![AE43FH(_9L%$T}3G0(JTELM](https://github.com/KendricknoLamar/T/assets/130739491/1c55a367-d9ff-4b22-9f0e-6914ac8a9a7f)
+![S4OLN VN5)`VC_45EC1~HWI](https://github.com/KendricknoLamar/T/assets/130739491/597a5f31-b764-45b3-946b-5e6686a9062e)
+![E%%@05ERQ6(R4YUMS)9F%17](https://github.com/KendricknoLamar/T/assets/130739491/02dd52f5-86d9-42e1-8c3f-725e8330c007)
